@@ -34,7 +34,7 @@ ${\color{#e0ffff} castiel \space ou \space ryu \ he \space ⎠ \space any {}}$
 
 <p align=center
 
-⧽ [rentry](https://rentry.co/detectivegavin) ꒰ ꒱ [atabook](https://takemedown.atabook.org) ꒰ ꒱ [strawpage](https://thelordoftheangels.straw.page) ⸝⸝
+⧽ [rentry](https://rentry.co/detectivegavin) ꒰ ꒱ [atabook](https://takemedown.atabook.org) ꒰ ꒱ [guns.lol](https://guns.lol/fieryones) ⸝⸝
 
 
 ![IMG_1488](https://github.com/user-attachments/assets/4df56426-7d2c-4992-a813-898f3d938285)
